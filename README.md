@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi I am  Alexander Morgan  SYSTEMS AND COMPUTER ENGINEERING PASSIONATE ABOUT TECHNOLOGY 👋
 
 <!--
 **Alexandermorgan507/Alexandermorgan507** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
